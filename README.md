@@ -1,4 +1,4 @@
-# My Personal SoftX Edits
+# My Personal SoftX Edits (INCOMPLETE)
 
 Originally made by DiscordStyles. 
 
